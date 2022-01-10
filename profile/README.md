@@ -1,6 +1,9 @@
 ### Hi there 👋
 Welcome to our organization, and don't forget to learn with Practiz.
 
+### Community
+Join now: https://facebook.com/groups/practiz
+
 ### Follow us
 - Facebook: https://bit.ly/practiz-facebook
 - Instagram: https://bit.ly/practiz-instagram
